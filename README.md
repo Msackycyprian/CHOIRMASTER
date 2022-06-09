@@ -1,0 +1,2 @@
+# CHOIRMASTER
+for class activities
